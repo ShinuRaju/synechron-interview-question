@@ -1,1 +1,0 @@
-# synechron-interview-question
